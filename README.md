@@ -1,2 +1,1 @@
-# Key-Lastest-Synape-X-
-Key are Out link here https://pastebin.com/aaWryZBV
+H7DM-8FJD-74ND-5JD5-KFLW-5KD3
